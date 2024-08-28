@@ -10,4 +10,4 @@ sou estudande da escola do josé marcelino
 ▪️para entrar em contato comigo acesse :
 @gigi.oliveirazs 📷
 
-![](https://th.bing.com/th/id/OIP.1y8VFvG5Cc0xHiwykQgJlQAAAA?rs=1&pid=ImgDetMain)
+![](https://www.relayhero.com/wp-content/uploads/2017/06/lifewithdogs2.jpg)
